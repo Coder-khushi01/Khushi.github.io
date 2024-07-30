@@ -1,3 +1,4 @@
+
 # Khushi.
  My name is khushi.I belong from  ludhiana.I got 90.8℅ in my secondary school examination. I  passed my 12th class from RS Model enior Secondary School. 
 Now I am the student of GNDEC. As Induction program is going on
@@ -6,7 +7,8 @@ Now I am the student of GNDEC. As Induction program is going on
 Date:10july ,kirtan and ardass. auditorium session about history of the college and alumini interaction All of us gave me a positive start. 
 
 **SECOND DAY of the college**
- Date:11july, Dr. Arvind dhingra sir addressed us they explained types of membership, types of societies and he asli gave us formula of sucess. And also auditorium session about different clubs of the college and various scholarship. 
+ Date:11july
+Dr. Arvind dhingra sir addressed us they explained types of membership, types of societies and he asli gave us formula of sucess. And also auditorium session about different clubs of the college and various scholarship. 
 
 **THIRD DAY of the college**
 Date:12july, first mathematics class  in mathematics class we are practice the integral. and second is uhv class first chapter. 
@@ -34,3 +36,6 @@ Date: 16 july, English activities (quiz).
 
  **TENTH DAY of the college**
  Date:  first class basic chemistry. It is very interesting class.  and the second class is peer interaction about technical
+
+ **ELEVENTH DAY of the college**
+  
